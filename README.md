@@ -8,3 +8,5 @@ I know C and some python and I would like to join in projects and learn more abo
 I am interested in AI and machine learning which would be my main area of focus in my studies
 
 Pizza is love, pizza is life
+
+also.. cheers!
